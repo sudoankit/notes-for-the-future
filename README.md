@@ -25,7 +25,7 @@ Notice that after I wrote "`His appearance reflected his life`", I added a parag
 
 I also love to use one-two word sentences. `Treachery. Deceit. Rotten intentions.` Keeping the meaning short and to the point adds more poetry ( I feel so ) to the writing.
 
-**Environment. **
+**Environment.**
 
 > Present day. 1789 Olyvie. The Victorian fused steam punk city. Steam and oil drove it’s life. Metal and bismuth gave it’s protection. Corruption and greed of powerful men, were slowly eating it’s glory.
 
