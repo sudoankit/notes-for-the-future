@@ -1,4 +1,6 @@
-I remember what I had written too, 
+# White
+I remember what I had written. 
+
 _white drapes, while sarees, white sky, I saw white everywhere. I had come to meet my sister after a long long time. Little did I know, that those whites weren't the peaceful ones, those whites were something that I feared._
 
 You know what's white also?                         
@@ -24,6 +26,4 @@ _the white packet of cigarettes_
 
  _and life wasn't same again_                         
                        
-Good Night. Sweet dreams. Don't cry. 
-                    
 Don't cry because of cigarettes.    
